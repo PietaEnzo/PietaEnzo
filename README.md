@@ -11,6 +11,7 @@ enzopieta123@gmail.com<br>
 @pietaanater
 
 
-![image](https://github.com/PietaEnzo/PietaEnzo/assets/145782528/5fe4a39e-9a54-4316-a73d-6b1a3acebccd)
+![image](https://github.com/PietaEnzo/PietaEnzo/assets/145782528/cc2d6aeb-1846-4646-835b-21011d00eaca)
+
 
 
