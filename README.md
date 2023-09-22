@@ -7,6 +7,5 @@
 
 **Você pode entrar em contato comigo** 📫
 
-enzopieta123@gmail.com
-
+enzopieta123@gmail.com<br>
 @pietaanater
